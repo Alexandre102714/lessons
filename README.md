@@ -1,3 +1,0 @@
-"# lessons" 
-"# lessons" 
-"# lessons" 
